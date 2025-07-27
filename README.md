@@ -20,3 +20,6 @@ Email Me 👉 ✉ *sushantyad3121@gmail.com* for Collaboration, Projects, or Lea
 
 # 🏆 GitHub Trophies
 ![](https://github-profile-trophy.vercel.app/?username=alamimran613&theme=radical&no-frame=false&no-bg=false&margin-w=4)
+
+## 🌐 Socials:
+[![Instagram](https://www.instagram.com/therealsushantyadav?igsh=MXYzbTQwdzZkam50cQ==) [![LinkedIn](https://www.linkedin.com/in/sushant-yadav-b97017330?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
